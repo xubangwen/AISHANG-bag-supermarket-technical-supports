@@ -1,0 +1,1 @@
+# AISHANG-bag-supermarket-technical-supports
